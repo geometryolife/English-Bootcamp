@@ -17,3 +17,13 @@
 - 伊芙琳：今天天气不错呀。
 - 安德鲁：嗯，确实。你是来听音乐会的吗？
 - 伊芙琳：没错。
+
+## W1D3
+
+- Evelyn: Yeah. How about you?
+- Andrew: Aha, I'm a student here. Oh, by the way, I'm Andrew.
+
+- 伊芙琳：没错。你呢？
+- 安德鲁：啊，我是这的学生。对了，我叫安德鲁。
+
+> by the way 附带，顺便说一下（用于转入与之前主题无关的事）
