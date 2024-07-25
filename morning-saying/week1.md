@@ -27,3 +27,14 @@
 - 安德鲁：啊，我是这的学生。对了，我叫安德鲁。
 
 > by the way 附带，顺便说一下（用于转入与之前主题无关的事）
+
+## W1D4
+
+- Evelyn: Oh, I'm Evelyn. Nice to meet you. So, have a nice day.
+- Andrew: Thanks, you too.
+- Evelyn: Bye-bye.
+
+- 伊芙琳：哦，我叫伊芙琳。很高兴认识你。祝你今天玩得开心。
+- 安德鲁：谢谢，也祝你玩得开心。
+- 伊芙琳：拜拜。
+
