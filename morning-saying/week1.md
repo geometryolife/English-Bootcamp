@@ -6,6 +6,10 @@
 - Andrew: Not bad, how about you?
 - Evelyn: I'm pretty good, thanks.
 
+- 伊芙琳：嘿，你好吗？
+- 安德鲁：还不错。你呢？
+- 伊芙琳：我很好，谢谢。
+
 > How you doing? 是 How are you doing? 非正式的一种表达方式。
 
 ## W1D2
@@ -38,3 +42,15 @@
 - 安德鲁：谢谢，也祝你玩得开心。
 - 伊芙琳：拜拜。
 
+
+## W1D5
+
+- Evelyn: Hey, how you doing?
+- Andrew: Not bad, how about you?
+- Evelyn: I'm pretty good, thanks. Aha, it's a beautiful, huh?
+- Andrew: Yeah, it is. Are you here for the concert?
+- Evelyn: Yeah. How about you?
+- Andrew: Aha, I'm a student here. Oh, by the way, I'm Andrew.
+- Evelyn: Oh, I'm Evelyn. Nice to meet you. So, have a nice day.
+- Andrew: Thanks, you too.
+- Evelyn: Bye-bye.
