@@ -19,3 +19,13 @@
 - 伊芙琳：噢，那你祖母多大岁数了？
 - 安德烈：她 72 岁了。
 - 伊芙琳：她看起来真漂亮。
+
+## W2D3
+
+- Evelyn: What's her name?
+- Andre: Angela.
+- Evelyn: Aha, she's really nice. And I think that's a nice name.
+
+- 伊芙琳：她叫什么名字呀？
+- 安德烈：安吉拉。
+- 安德烈：啊，她真不错，我觉得这名字也好听。
