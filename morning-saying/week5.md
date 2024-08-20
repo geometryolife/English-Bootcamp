@@ -21,4 +21,44 @@
 
 ## W5D2
 
+- Evelyn: Oh, I just wanna have some you know, sandwich or something.
+- Andrew: Sure. I don't want anything big, either. But I do want something hot.
+
+- 伊芙琳：呃，我只想吃一些，你懂的，吃些三明治或者什么的。
+- 安德鲁：确实，我也不想吃大餐，但是我想吃点热的东西。
+
+### 词汇
+
+- wanna 要，想要；一个非正式的口语化的词，和 want to 用法相同
+- sandwich 三明治
+- something 某些事物
+- anything 任何事物
+- hot 热的
+
+### 链接
+
+- [辉说英语VIP晨读W5D2-Let's take a break for lunch!](https://mp.weixin.qq.com/s/uNwxGGcKyK08wKT5UfXQWQ)
+
+## <++>
+
+- Evelyn: <++>
+- Andrew: <++>
+- Evelyn: <++>
+- Andrew: <++>
+
+- 伊芙琳：<++>
+- 安德鲁：<++>
+- 伊芙琳：<++>
+- 安德鲁：<++>
+
+
+### 词汇
+
+- <++>
+- <++>
+- <++>
+
+### 链接
+
+- [<++>](<++>)
 
