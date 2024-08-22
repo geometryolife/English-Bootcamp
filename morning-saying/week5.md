@@ -58,6 +58,24 @@
 
 - [辉说英语VIP晨读W5D3-Let's take a break for lunch!](https://mp.weixin.qq.com/s/g_j120LEDiEyMXpgAkmlrA)
 
+## W5D4
+
+- Evelyn: Oh, OK. I'd like to have some sandwich or salad or something like that.
+- Andrew: Great. So let's go there.
+- Evelyn: Yeah, sure.
+
+- 伊芙琳：好的。我想吃些三明治或者沙拉，或者一些类似的食物。
+- 安德鲁：太棒了。那我们去那儿吧。
+- 伊芙琳：好啊。
+
+### 词汇
+
+- salad 沙拉
+
+### 链接
+
+- [辉说英语VIP晨读W5D4-Let's take a break for lunch!](https://mp.weixin.qq.com/s/qGHZgeSHJzI4zHSQNcyQjg)
+
 ## <++>
 
 - Evelyn: <++>
