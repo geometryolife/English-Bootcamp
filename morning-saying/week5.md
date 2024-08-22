@@ -39,6 +39,25 @@
 
 - [辉说英语VIP晨读W5D2-Let's take a break for lunch!](https://mp.weixin.qq.com/s/uNwxGGcKyK08wKT5UfXQWQ)
 
+## W5D3
+
+- Evelyn: Oh, well. I know there's a new Spanish place over there, and they have really good soup.
+- Andrew: That sounds good.
+
+- 伊芙琳：对了，这附近新开了一家西班牙餐厅，那里的汤很不错。
+- 安德鲁：听起来不错。
+
+### 词汇
+
+- new 新的
+- Spanish 西班牙的
+- place 地方（这里代指餐厅）
+- soup 汤
+
+### 链接
+
+- [辉说英语VIP晨读W5D3-Let's take a break for lunch!](https://mp.weixin.qq.com/s/g_j120LEDiEyMXpgAkmlrA)
+
 ## <++>
 
 - Evelyn: <++>
