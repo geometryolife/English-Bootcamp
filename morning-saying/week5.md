@@ -76,26 +76,18 @@
 
 - [辉说英语VIP晨读W5D4-Let's take a break for lunch!](https://mp.weixin.qq.com/s/qGHZgeSHJzI4zHSQNcyQjg)
 
-## <++>
+## W5D5
 
-- Evelyn: <++>
-- Andrew: <++>
-- Evelyn: <++>
-- Andrew: <++>
-
-- 伊芙琳：<++>
-- 安德鲁：<++>
-- 伊芙琳：<++>
-- 安德鲁：<++>
-
-
-### 词汇
-
-- <++>
-- <++>
-- <++>
+- Evelyn: Ah, ok. Let's take a break for lunch.
+- Andrew: Sure. Would you like to go out or...?
+- Evelyn: Oh, I just wanna have some, you know, sandwich or something.
+- Andrew: Sure. I don't want anything big, either. But I do want something hot.
+- Evelyn: Oh, well. I know there's a new Spanish place over there, and they have really good soup.
+- Andrew: That sounds good.
+- Evelyn: Oh, ok. I'd like to have some sandwich or salad or something like that.
+- Andrew: Great. So let's go there.
+- Evelyn: Yeah, sure.
 
 ### 链接
 
-- [<++>](<++>)
-
+- [辉说英语VIP晨读W5D5-Let's take a break for lunch!](https://mp.weixin.qq.com/s/OTTRFt8imLNQl_xgKTgdTA)
