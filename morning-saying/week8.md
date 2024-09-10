@@ -19,6 +19,27 @@
 
 - [辉说英语VIP晨读W8D1-Are there any cash machines around here?](https://mp.weixin.qq.com/s/WGsrXt-atvZ6gV56ROTyGg)
 
+## W8D2
+
+- Andrew: Uh... there's one on Main Street across from the big department store. It's right up this street.
+
+- 安德鲁：呃， 在中心路上有一家，在大百货公司对面。就在这条街上。
+
+### 词汇
+
+- there's 有（there is 或 there has 的缩写）
+- Main Street 中心路
+- across 穿过
+- from 从……开始，始于
+- big 大的
+- department store 百货公司
+- right 恰好，正好
+- up ……之上
+
+### 链接
+
+- [辉说英语VIP晨读W8D2-Are there any cash machines around here?](https://mp.weixin.qq.com/s/74HEkl6pzEg7YWn_MVnqIA)
+
 ## <++>
 
 - Evelyn: <++>
