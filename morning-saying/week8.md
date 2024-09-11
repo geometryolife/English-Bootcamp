@@ -40,6 +40,25 @@
 
 - [辉说英语VIP晨读W8D2-Are there any cash machines around here?](https://mp.weixin.qq.com/s/74HEkl6pzEg7YWn_MVnqIA)
 
+## W8D3
+
+- Evelyn: Thanks. Oh, and are there cash machines around here?
+
+- 伊芙琳：谢谢。另外这附近有自动取款机吗？
+
+### 词汇
+
+- thanks 谢谢
+- any 一些，若干
+- cash 现金
+- machine 机器
+- around 周围，附近
+- here 在这里
+
+### 链接
+
+- [辉说英语VIP晨读W8D3-Are there any cash machines around here?](https://mp.weixin.qq.com/s/18sDiBqPmmWPF2HfSROH4A)
+
 ## <++>
 
 - Evelyn: <++>
