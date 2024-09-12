@@ -59,6 +59,29 @@
 
 - [辉说英语VIP晨读W8D3-Are there any cash machines around here?](https://mp.weixin.qq.com/s/18sDiBqPmmWPF2HfSROH4A)
 
+## W8D4
+
+- Andrew: Yeah, there are some ATMs over there, just outside the bank.
+- Evelyn: Oh, yeah. I see them. Thanks.
+
+- 安德鲁：有的，那边有一些自动取款机，就在银行外面。
+- 伊芙琳：噢，我看见了。谢谢。
+
+### 词汇
+
+- some 一些
+- ATM 自动取款机
+- over there 在那边
+- just 正好
+- outside 在外面
+- bank 银行
+- street 街道
+- see 看见，看出
+
+### 链接
+
+- [辉说英语VIP晨读W8D4-Are there any cash machines around here?](https://mp.weixin.qq.com/s/0v6IEKFQpaQfVfS9mgeKOg)
+
 ## <++>
 
 - Evelyn: <++>
