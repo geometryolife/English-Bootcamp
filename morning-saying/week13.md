@@ -49,6 +49,30 @@
 
 - [辉说英语VIP晨读W13D2-I am working two jobs this semester.](https://mp.weixin.qq.com/s/A8v_Zejoii2cViMQNPHAOw)
 
+## W13D3
+
+- Andrew: Yeah. I'm just doing it for a couple of months. I'm working at a supermarket after class. And then I have my regular job at the restaurant till 11:00.
+
+- 安德鲁：是的。我干了有几个月了。下课后我在超市打工。之后我在餐厅工作到 11 点。
+
+### 词汇
+
+- just 正好
+- couple 几个
+- month 月
+- supermarket 超市
+- after 在……之后
+- class 课，课堂
+- then 之后，然后
+- regular 有规律的，固定的
+- restaurant 餐厅，餐馆
+- till 直到
+- 11:00 eleven 11 点
+
+### 链接
+
+- [辉说英语VIP晨读W13D3-I am working two jobs this semester.](https://mp.weixin.qq.com/s/XENCk8hiMDyNRRkuacuxPQ)
+
 ## <++>
 
 - Evelyn: <++>
