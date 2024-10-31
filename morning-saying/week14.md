@@ -92,3 +92,27 @@
 ### 链接
 
 - [辉说英语VIP晨读W14D3-They are not real friends.](https://mp.weixin.qq.com/s/1oW1CMRETVvK1eo7zN5h8A)
+
+## W14D4
+
+- Evelyn: Maybe. But don't you think it's good to spend time with real people? I mean face-to-face.
+- Andrew: Sure. So why don't you come and play?
+
+- 伊芙琳：或许吧，但你不觉得和真人一起玩更好吗？我是说面对面的那种。
+- 安德鲁：当然。所以不如和我一起玩吧？
+
+### 词汇
+
+- think 认为
+- good 好的
+- spend 花（时间），度过
+- time 时间
+- face-to-face 面对面（地）
+- sure 当然，肯定（地）
+- so 所以
+- why 为什么
+- come 来，过来
+
+### 链接
+
+- [辉说英语VIP晨读W14D4-They are not real friends.](https://mp.weixin.qq.com/s/33ASU45wDVEKven-DqIPVw)
