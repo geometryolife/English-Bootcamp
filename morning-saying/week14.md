@@ -65,24 +65,30 @@
 
 - [辉说英语VIP晨读W14D2-They are not real friends.](https://mp.weixin.qq.com/s/YukzXocQvcYv8nSfVS3Svg)
 
-## <++>
+## W14D3
 
-- Evelyn: <++>
-- Andrew: <++>
-- Evelyn: <++>
-- Andrew: <++>
+- Evelyn: Maybe. On the other hand, they're not like real friends. You don't even know their names. You know what I'm saying?
+- Andrew: Yeah, I know what you mean. But I don't have to know people to enjoy doing stuff with them.
 
-- 伊芙琳：<++>
-- 安德鲁：<++>
-- 伊芙琳：<++>
-- 安德鲁：<++>
+- 伊芙琳：可能吧，但从另一个方面看，他们可不是真实的朋友，你都不知道他们的名字。你懂我说的吧？
+- 安德鲁：嗯，我懂你的意思，但不认识对方我也能和他们一起玩呀。
 
 ### 词汇
 
-- <++>
-- <++>
-- <++>
+- maybe 可能，也许
+- other 其他的
+- hand 手
+- on the other hand 另一个方面
+- they're = they are 的缩略词形式，他们是
+- real 真实的
+- say 说
+- people 人们，大家
+- but 但是
+- enjoy 享受……的乐趣
+- stuff （泛指）说的（或做）的事
+- with 和……在一起
+- them （they 的宾格）他们
 
 ### 链接
 
-- [<++>](<++>)
+- [辉说英语VIP晨读W14D3-They are not real friends.](https://mp.weixin.qq.com/s/1oW1CMRETVvK1eo7zN5h8A)
