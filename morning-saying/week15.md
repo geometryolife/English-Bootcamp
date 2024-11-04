@@ -1,0 +1,49 @@
+# 辉说英语晨读
+
+## W15D1
+
+- Andrew: So, is your new roommate here?
+- Evelyn: Oh you mean Ava? She's right over there.
+
+- 安德鲁：所以，你的新室友在这儿吗？
+- 伊芙琳：你是说 Ava 吗？她就在那儿。
+
+### 词汇
+
+- so 所以
+- your 你的
+- new 新的
+- roommate 室友
+- here 在这里
+- mean 意思是，意味着
+- Ava 埃娃
+- she's = she is 的缩略形式，她是
+- right 正好，恰好
+- over 在……的另一边
+- there 那里
+
+### 链接
+
+- [辉说英语VIP晨读W15D1-Is your new roommate here?](https://mp.weixin.qq.com/s/HhQpKc9oTBPRzvzEKfiUhg)
+
+## <++>
+
+- Evelyn: <++>
+- Andrew: <++>
+- Evelyn: <++>
+- Andrew: <++>
+
+- 伊芙琳：<++>
+- 安德鲁：<++>
+- 伊芙琳：<++>
+- 安德鲁：<++>
+
+### 词汇
+
+- <++>
+- <++>
+- <++>
+
+### 链接
+
+- [<++>](<++>)
