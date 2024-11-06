@@ -47,6 +47,26 @@
 ### 链接
 
 - [辉说英语VIP晨读W15D2-Is your new roommate here?](https://mp.weixin.qq.com/s/X9-DAarn6YwyCy0nr5AgqA)
+
+## W15D3
+
+- Andrew: Oh, the one with the short hair?
+- Evelyn: No, she's the woman with the ponytail.
+
+- 安德鲁：哦，是短头发的那个吗？
+- 伊芙琳：不是，是扎马尾辫的那个女生。
+
+### 词汇
+
+- with 有……
+- short 短的
+- hair 头发
+- ponytail 马尾辫
+
+### 链接
+
+- [辉说英语VIP晨读W15D3-Is your new roommate here?](https://mp.weixin.qq.com/s/xUa-T2WPjgjYhecCX9EFqQ)
+
 ## <++>
 
 - Evelyn: <++>
