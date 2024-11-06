@@ -26,6 +26,27 @@
 
 - [辉说英语VIP晨读W15D1-Is your new roommate here?](https://mp.weixin.qq.com/s/HhQpKc9oTBPRzvzEKfiUhg)
 
+## W15D2
+
+- Andrew: Oh, which one is she?
+- Evelyn: She's the woman standing by the table. You see?
+
+- 安德鲁：哦，是哪一个？
+- 伊芙琳：站在桌子旁边的那个女生，看见了吗？
+
+### 词汇
+
+- which 哪个
+- one 一个
+- woman 女子
+- standing => stand 的现在分词，正在站着
+- by 在……边上
+- table 桌子
+- see 看见
+
+### 链接
+
+- [辉说英语VIP晨读W15D2-Is your new roommate here?](https://mp.weixin.qq.com/s/X9-DAarn6YwyCy0nr5AgqA)
 ## <++>
 
 - Evelyn: <++>
