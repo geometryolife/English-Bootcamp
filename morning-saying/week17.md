@@ -13,7 +13,7 @@
 - Evelyn 伊芙琳
 - me 我（I 的宾格形式）
 - how's = how is 的缩略形式，……怎么样
-- going = go 的现在分词形式，进展
+- going => go 的现在分词形式，进展
 - Dad 爸爸
 - everything 一切，所有事物
 - great 美妙的，很棒的
@@ -36,7 +36,7 @@
 
 ### 词汇
 
-- working = work 的现在分词，正在做……
+- working => work 的现在分词，正在做……
 - very 非常，很
 - hard 努力
 - this 这个
@@ -48,6 +48,31 @@
 ### 链接
 
 - [辉说英语VIP晨读W17D2-I am working very hard this semester.](https://mp.weixin.qq.com/s/ZrRzXRaVJ_XQJkA7GFftYQ)
+
+## W17D3
+
+- Evelyn: Oh, Dad, right now I'm watching a baseball game.
+- Andrew: Baseball? Uh, who's playing?
+- Evelyn: The Yankees and the Red Sox.
+
+- 伊芙琳：啊，老爸，现在我在看一场棒球比赛。
+- 安德鲁：棒球？呃，谁参赛了？
+- 伊芙琳：洋基队和红袜队。
+
+### 词汇
+
+- right now 现在
+- watching => watch 的现在分词，正在看
+- baseball 棒球
+- game 比赛
+- who's = who is 的缩略形式，谁……
+- playing => play 的现在分词，正在比赛
+- Yankees 洋基队
+- Red Sox 红袜队
+
+### 链接
+
+- [辉说英语VIP晨读W17D3-I am working very hard this semester.](https://mp.weixin.qq.com/s/FngSCo3nyPAzArnsQzB7YQ)
 
 ## <++>
 
