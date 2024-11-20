@@ -26,6 +26,29 @@
 
 - [辉说英语VIP晨读W17D1-I am working very hard this semester.](https://mp.weixin.qq.com/s/IPLxJpUkJM-lP0uISrqMfw)
 
+## W17D2
+
+- Evelyn: Oh, yeah. I'm working very hard this semester.
+- Andrew: Good, good. So what are you doing now? Are you studying?
+
+- 伊芙琳：噢，当然，这学期我可努力了。
+- 安德鲁：很好。那你现在在干嘛？在学习吗？
+
+### 词汇
+
+- working = work 的现在分词，正在做……
+- very 非常，很
+- hard 努力
+- this 这个
+- semester 学期
+- good 好
+- what 什么
+- now 现在
+
+### 链接
+
+- [辉说英语VIP晨读W17D2-I am working very hard this semester.](https://mp.weixin.qq.com/s/ZrRzXRaVJ_XQJkA7GFftYQ)
+
 ## <++>
 
 - Evelyn: <++>
