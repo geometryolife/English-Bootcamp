@@ -74,6 +74,37 @@
 
 - [辉说英语VIP晨读W17D3-I am working very hard this semester.](https://mp.weixin.qq.com/s/FngSCo3nyPAzArnsQzB7YQ)
 
+## W17D4
+
+- Andrew: Really? Uh, Evelyn, let's talk again in two hours.
+- Evelyn: Ok Dad. Enjoy the game!
+- Andrew: You too. But please try and study for your exams, OK?
+
+- 安德鲁：真的？呃，Evelyn，我们两小时之后再聊吧。
+- 伊芙琳：好的老爸，好好看比赛吧！
+- 安德鲁：你也一样，但你一定要努力复习考试，好吗？
+
+### 词汇
+
+- really 真的吗？
+- let's = let us 的缩略形式，让我们
+- talk 聊天，谈话
+- again 再一次
+- two 两个
+- hours 小时
+- enjoy 享受……的乐趣
+- too 也
+- but 但是
+- please 请（用于加强请求或要求的语气）
+- try 努力
+- study 学习
+- your 你的
+- exam 考试
+
+### 链接
+
+- [辉说英语VIP晨读W17D4-I am working very hard this semester.](https://mp.weixin.qq.com/s/cg-TSBEI1gH41P9xz4cXug)
+
 ## <++>
 
 - Evelyn: <++>
